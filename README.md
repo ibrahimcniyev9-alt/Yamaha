@@ -1,0 +1,2 @@
+# Yamaha
+İyiki doğdun Muzaffer
